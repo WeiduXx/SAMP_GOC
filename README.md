@@ -1,0 +1,2 @@
+# SAMP_GOC
+GOC作弊
